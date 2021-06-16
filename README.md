@@ -1,3 +1,5 @@
+![this is an image.](images/main.png)
+
 # Welcome to my profile
 
 **I am redsplash, a musician and beatmaker from Greece**
