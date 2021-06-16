@@ -1,6 +1,6 @@
 # Welcome to my profile
 
-I am redsplash, a musician and beatmaker from Greece
+**I am redsplash, a musician and beatmaker from Greece**
 
 listen to my music over on [spotify](https://open.spotify.com/artist/5zKOaA2q65RpWCA7rlwnOQ?si=tXDYb5RkTeqoLCmNebExtA "redsplash on spotify") (some chillhop vibes are waiting for you there)
 
